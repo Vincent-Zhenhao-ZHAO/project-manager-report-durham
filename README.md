@@ -24,7 +24,3 @@ I navigated through various challenges, each presenting unique learning opportun
 ## Conclusion
 
 This experience was pivotal, enhancing my practical understanding of project management, team leadership, and strategic planning within a real-world, dynamic project environment.
-
----
-
-Feel free to use or modify the above template and add any additional sections that you feel might be relevant or important to share regarding your project management experience.
